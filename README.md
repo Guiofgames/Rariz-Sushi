@@ -1,2 +1,0 @@
-# Rariz-Sushi
-Rariz Sushi
